@@ -241,4 +241,4 @@ Tom Clancy's Rainbow Six Siege is available as a full free version with all feat
 Don't wait! Download Tom Clancy's Rainbow Six Siege today and dive into the ultimate tactical FPS experience!
 
 ---
-**Last updated:** 2026-09-18 23:56:14 UTC
+**Last updated:** 2026-09-19 03:59:23 UTC
